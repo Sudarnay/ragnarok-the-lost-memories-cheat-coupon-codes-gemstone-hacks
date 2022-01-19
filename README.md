@@ -1,2 +1,5 @@
-# ragnarok-the-lost-memories-cheat-coupon-codes-gemstone-hacks
-Ragnarok The Lost Memories Cheat coupon codes unlimited gemstones hacks
+# Ragnarok The Lost Memories Cheat coupon codes unlimited gemstones
+
+Ragnarok The Lost Memories Cheat coupon codes unlimited gemstones hacks - Unlike other classes, Ragnarok mages have some AOE skills from the beginning. They have only one passive space, which increases their SP recovery. Their elemental damage concentration means that they need a lot of active skills to match the enemy's elemental weaknesses. Their only non elemental skill is single target attack, and the rest are some kind of elemental AOE or single target damage ranged attack. As a mage, you probably need to fill in two hot columns. As a wizard, they have more ways to destroy the crowd, have a variety of element attacks, and do some different things according to different elements. They can also protect themselves through vit to reduce physical damage to them, Ragnarok The Lost Memories code is very useful because they attract the attention of many injured enemies at the same time.
+
+<a href="https://windmod.icu/ragnarok-the-lost-memories/">Go here</a>
